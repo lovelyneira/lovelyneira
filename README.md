@@ -1,0 +1,7 @@
+- 👋 Yo, names Neira!
+- 👀 I’m interested in coding (obvious), game making, and shows!
+- 🌱 I’m currently learning code, and I'm willing to be taught!
+- 💞️ I'm not interested in collabs at the moment, however, this will change eventually!
+- 📫 How to reach me: Through Discord at imacoolstix!
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: THERE IS NO FUN FACT
